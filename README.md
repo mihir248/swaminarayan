@@ -1,1 +1,1 @@
-# swaminarayan-mandir-kundaldham-profile
+# swaminarayan
